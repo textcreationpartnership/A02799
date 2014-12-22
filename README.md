@@ -36,11 +36,19 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-An antidote against the plague. Or Panchrestōn: a salue for all sores which applied and practised, w
+
+1. TO THE HONOrable, & right worthy Sir Francis Wortley Knight and Baronet, Grace mercie and peace from God our Father and our Lord Ieſus Chriſt.
+
+1. Ad Lectorem.
+
 #####Body#####
-An antidote against the plague. Or Panchrestōn: a salue for all sores which applied and practised, w
+
+1. AN ANTIDOTE againſt the Plague.
+
 #####Back#####
-An antidote against the plague. Or Panchrestōn: a salue for all sores which applied and practised, w
+
+1. Ad Lectorem.
+
 **Types of content**
 
   * There are 8 **verse** lines!
